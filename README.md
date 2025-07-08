@@ -1,6 +1,6 @@
 # Security Researcher & Junior Pentester Portfolio
 [Instagram](https://www.instagram.com/m4g4.a/)
-[Telegram](t.me/Hammelio)
+[Telegram](https://t.me/Hammelio)
 
 ## Overview
 
